@@ -1,6 +1,6 @@
 
 
-[GitHub](http://reshma097/markdown-portfolio. com)
+[GitHub](http://reshma097/markdown-portfolio.com)
 
 
 
